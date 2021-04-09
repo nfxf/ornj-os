@@ -2,4 +2,10 @@
 os
 
 devs:
-https://mega.nz/folder/XoUX1QoI#4yLlX0LVOWI8c_v-KTcKEQ
+
+
+
+why instant sucks and 4rrtw
+
+
+https://cutt.ly/JxQRv9y
