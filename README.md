@@ -1,6 +1,25 @@
 # ornj-os
 os
 
+
+hi.
+
+trying to develop an os.
+
+called "ornj".
+
+please. help:
+
+
+https://mega.nz/folder/LOxm0DaS#aPdMDKEf3GRIqi5OuNGs0A
+
+
+also, here is the vr division:
+
+
+
+
+old:
 devs:
 
 
